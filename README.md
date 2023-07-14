@@ -1,4 +1,4 @@
-### Salutationse 👋
+### Salutations 👋
 
 <!--
 Hark, I am known by the appellation, Edgar Allan Poe, presently adorning the mantle of the Supreme Technological Soothsayer, succeeding a radiant era of honing my mettle as a virtuoso in the craft of software's holistic orchestration. Prior to this, many a time's cycle has been spent in the prestigious capacity of the Supreme Custodian of Technological Endeavours.
